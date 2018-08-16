@@ -1,3 +1,3 @@
 # ArkadasListesi
 
- ![Arkadaş Listesi](https://i.hizliresim.com/g6v2JN.jpg)
+ ![Arkadaş Listesi](https://i.hizliresim.com/1EaVXY.jpg)
